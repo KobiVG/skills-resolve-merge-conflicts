@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+im a goofy goober.
